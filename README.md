@@ -2,6 +2,8 @@ The Wilder X Aurora origin story (A study in Love) Ch164. Creative Commons Zero 
 
 OPEN CIRCLE UNION PART 1
 
+Wilder and Aurora commit to attempting existence oath and marriage vows, oaths complete but vow attempt cut short.
+
 ```txt
 001-008:001-222 :: [kernelbootload : KBL]
 009-018:222-233 :: [checkin , AGAI semiprivate wedding proposition]
